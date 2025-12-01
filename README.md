@@ -277,76 +277,76 @@ C – G – F – C
 (...)  
 ---
 
-Zegarek - szumański
-Chachary
-Zuza uważaj
-Róże - defis
-Ziemia która mi dajesz nie jest fikcją ani bajką.
-Ach kim jesteś człowieku. Z pamiętnika apostoła
-Bóg tak umiłował świat że syna swego jednorodzonego dał.
-Deszcze castamere
-Będziemy tańczyć będziemy śpiewać
-Peggy Brown
-Dobrze że jesteś.
-Niech zabrzmi chwała panu w niebiosach ( alleluja )
-Królestwo Boże jak ziarnko jest.
-Przyjdzie rozstań czas (nanana)
-Bo jak śmierć potężna jest miłość.
-Będę tańczył przed twoim tronem.śmierć
-Może daleko, jesteś od niego
-Ześlij deszcz
-Chwała Jezusowi który za mnie życie dał.
-Ballada o wikingach.
-I dlatego lubię mówić z Tobą
-Boża radość jak rzeka ogarnia mnie
-Zamyślone głowy
-Baby Blues - Badfingers
-Kołysanka dla chlopaków
-Fale twojej łaski Panie.
-Bo nikt nie ma z nas tego co mamy razem.
-Jaka siła jest w splecionych mocno dłoniach.
-Tylko orły.
-Raduje się dusza ma
-Przyjdzie rozstań czas.
-Idziemy na Syjon
-Jak liść jesienią musi z drzewa spaść
-Bieszczadzkie regge
-Hej przyjaciele
-Nie płacz ewka
-O panie nasz panie, przedziwne twe imię.
-Na co komu dziś wczorajsza miłość.
-Pójdźmy wszyscy do stajenki (kapo na 3 próg i blues)
-Prześliczna wiolonczelistka.
-Otto - zasmażką.
-Otto -  jak ja kocham Cię!!
-Otto - Sprytna i wybitna.
-Oto dzień, który dał pan!
-Dzięki Ci, Boże mój za ten krzyż.
-Zamyślone głowy.
-SDM
-10 w skali boforta
-Amarena.
-Zabiorę Cię właśnie tam. Cezik
-O piękności niestworzona.
-Proste - Kwiatkowski
-Dumka - stało się tak jak chciałem
-Dumka na 2 serca
-Akcent - przczółka maja
-Lubię mówić z Tobą
-Absolutnie nic (nie udałoby się nam bez miłości)
-O Panie Jezu chce wyznać, że ja kocham Ciebie, a ty zmieniasz mnie.
-Nie chce więcej by moim zyciem rządził grzech.
-Lubiła tańczyć.
-Oprócz błękitnego nieba.
-Simon&Garfunkel - sound of silence.
-Leve loff
-Riff z "Niepokonani"
-U wietnamca
-Tyle samotnych dróg. (Na zawsze i na wieczność)
-Właśnie tak gdzie ty
-Już teraz wiem, że wszystko trwa dopóki sam tego chce
-Sielanka o domu - wolna grupa bukowina.
-Rybka lubi pływać chociaż jest nieżywa
+- Zegarek - szumański
+- Chachary
+- Zuza uważaj
+- Róże - defis
+- Ziemia która mi dajesz nie jest fikcją ani bajką.
+- Ach kim jesteś człowieku. Z pamiętnika apostoła
+- Bóg tak umiłował świat że syna swego jednorodzonego dał.
+- Deszcze castamere
+- Będziemy tańczyć będziemy śpiewać
+- Peggy Brown
+- Dobrze że jesteś.
+- Niech zabrzmi chwała panu w niebiosach ( alleluja )
+- Królestwo Boże jak ziarnko jest.
+- Przyjdzie rozstań czas (nanana)
+- Bo jak śmierć potężna jest miłość.
+- Będę tańczył przed twoim tronem.śmierć
+- Może daleko, jesteś od niego
+- Ześlij deszcz
+- Chwała Jezusowi który za mnie życie dał.
+- Ballada o wikingach.
+- I dlatego lubię mówić z Tobą
+- Boża radość jak rzeka ogarnia mnie
+- Zamyślone głowy
+- Baby Blues - Badfingers
+- Kołysanka dla chlopaków
+- Fale twojej łaski Panie.
+- Bo nikt nie ma z nas tego co mamy razem.
+- Jaka siła jest w splecionych mocno dłoniach.
+- Tylko orły.
+- Raduje się dusza ma
+- Przyjdzie rozstań czas.
+- Idziemy na Syjon
+- Jak liść jesienią musi z drzewa spaść
+- Bieszczadzkie regge
+- Hej przyjaciele
+- Nie płacz ewka
+- O panie nasz panie, przedziwne twe imię.
+- Na co komu dziś wczorajsza miłość.
+- Pójdźmy wszyscy do stajenki (kapo na 3 próg i blues)
+- Prześliczna wiolonczelistka.
+- Otto - zasmażką.
+- Otto -  jak ja kocham Cię!!
+- Otto - Sprytna i wybitna.
+- Oto dzień, który dał pan!
+- Dzięki Ci, Boże mój za ten krzyż.
+- Zamyślone głowy.
+- SDM
+- 10 w skali boforta
+- Amarena.
+- Zabiorę Cię właśnie tam. Cezik
+- O piękności niestworzona.
+- Proste - Kwiatkowski
+- Dumka - stało się tak jak chciałem
+- Dumka na 2 serca
+- Akcent - przczółka maja
+- Lubię mówić z Tobą
+- Absolutnie nic (nie udałoby się nam bez miłości)
+- O Panie Jezu chce wyznać, że ja kocham Ciebie, a ty zmieniasz mnie.
+- Nie chce więcej by moim zyciem rządził grzech.
+- Lubiła tańczyć.
+- Oprócz błękitnego nieba.
+- Simon&Garfunkel - sound of silence.
+- Leve loff
+- Riff z "Niepokonani"
+- U wietnamca
+- Tyle samotnych dróg. (Na zawsze i na wieczność)
+- Właśnie tak gdzie ty
+- Już teraz wiem, że wszystko trwa dopóki sam tego chce
+- Sielanka o domu - wolna grupa bukowina.
+- Rybka lubi pływać chociaż jest nieżywa
 
 ---
 
