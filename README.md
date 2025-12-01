@@ -816,60 +816,108 @@ Byś pływała dalej w niebie. F G a a
 Popek Monster
 
 Chciałbyś zwiedzić cały świat					a E
+
 Ale nie stać cie nawet by dojechać na dworzec		 F E
+
 Nie masz siły rano wstać
+
 Bo zapierdalasz na budowie jak buldożer
+
 Żona nie chce cię już znać
+
 Wyrzuca do śmieci ślubną obrączkę
+
 Jeszcze jej zazdrosny gach
+
 Na odchodne zajebie ci w mordę
+
 Modelka ratuje las
+
 I wjeżdża tam hammerem ubrana w futro z norek
+
 Pod śmietnikiem stary dziad umiera na mrozie
+
 Ale nikt mu nie pomoże
+
 Może za 400 lat
+
 Coś się tutaj zmieni ale bardzo w to wątpię
+
 Matka dziecku skręca kark
+
 I zakopuje go jak psa razem ze smoczkiem
 
+
 Obcy człowiek mi jak brat
+
 Ale nie o każdym tak powiedzieć mogę
+
 Na końcu bracie i tak
+
 Za udzieloną pomoc naplują ci w mordę
+
 Zawsze kurwa coś nie tak
+
 Ale ludzie nauczyli się wiązać koniec z końcem
+
 Zawsze dla was będę grał
+
 Z jednej strony brawa z drugiej listy gończe
+
 Wyjebane mam na hajs
+
 Żyję po swojemu i jest mi dobrze
+
 Muzyką pozdrawiam was
+
 2014 należy do mnie
+
 Kiedy przyjdzie na mnie czas
+
 Nie będę uciekał kiedy przyjdzie po mnie
+
 Pusc mi gangsta pardise
+
 Jak przyjdziesz z kwiatami ziomek na mój pogrzeb
 
+
 Pregnant lady smoking crack
+
 She don’t give a fuck about a baby
+
 Stop that bitch oh! My god!
+
 Why this mutherfuckers going so crazy
+
 The giutar shot is nearly done
+
 But deaf mutherfuckers simply hate me
+
 Popek Monster spit at bar!
+
 First time in my life in different language
+
 different language, different language
 
+---
 ---
 
 Ty drucha we mnie masz
 
 Ty druha we mnie masz				E / H7#9 / E 
+
 Ty druha we mnie masz				A / A(b) /E / E7 
+
 Kiedy szukasz, gdzie twój kąt 			A / E / Gis / cis
+
 A przytulny dom jest wiele mil stąd		A / E / Gis / cis
+
 Nie zapomnij, bo popełnisz błąd, że		A / E / |A| / Gis / cis
+
 Ty druha we mnie masz, O TAK!			Fis7 /  H7#9 / E / Cis7
+
 Ty druha we mnie masz				Fis7 / H7#9 / E
+
 
 Ty druha we mnie masz				
 Ty druha we mnie masz
