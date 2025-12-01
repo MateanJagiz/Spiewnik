@@ -73,6 +73,69 @@ G7 – C – A7 – d – G7 – C
 
 ---
 
+## Przybieżeli do Betlejem
+
+- Tonacja: C  
+- Chwyty: D, G
+- Kapodaster: brak  
+
+**Zwrotka**  
+D –––––––– D – G – D  
+↓↓↑ ↑↓↑ ––– ↓↓ ↓↓↑
+
+**Refren**  
+D G e A –––– D G D – D A D  
+↓↓↑ ↓↓↑ ↓↓↑ ↓↓↑ – ↓↓↓ – ↓↑
+
+
+Przybieżeli do Betlejem pasterze,
+
+grając skocznie Dzieciąteczku na lirze.
+
+
+Ref:
+
+Chwała na wysokości, chwała na wysokości, a pokój na ziemi.
+
+Chwała na wysokości, chwała na wysokości, a pokój na ziemi.
+
+
+Oddawali swe ukłony w pokorze,
+
+Tobie z serca ochotnego, o Boże!
+
+
+Anioł Pański sam ogłosił te dziwy,
+
+których oni nie słyszeli, jak żywi.
+
+
+Dziwili się napowietrznej muzyce
+
+i myśleli, co to będzie za Dziecię?
+
+
+Oto Mu się wół i osioł kłaniają,
+
+trzej królowie podarunki oddają.
+
+
+I Anieli gromadami pilnują,
+
+Panna czysta wraz z Józefem piastują.
+
+
+Poznali Go Mesjaszem być prawym,
+
+narodzonym dzisiaj Panem łaskawym.
+
+
+My Go także Bogiem, Zbawcą już znamy
+
+i z całego serca wszyscy kochamy.
+
+---
+
 ## Zegarek – Wojtek Szumański
 - Tonacja: Am  
 - Chwyty: Am, E, Dm, C, G, F  
