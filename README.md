@@ -87,49 +87,49 @@ D –––––––– D – G – D
 D G e A –––– D G D – D A D  
 ↓↓↑ ↓↓↑ ↓↓↑ ↓↓↑ – ↓↓↓ – ↓↑
 
-
+### 1 
 Przybieżeli do Betlejem pasterze,
 
 grając skocznie Dzieciąteczku na lirze.
 
 
-Ref:
+### Ref:
 
 Chwała na wysokości, chwała na wysokości, a pokój na ziemi.
 
 Chwała na wysokości, chwała na wysokości, a pokój na ziemi.
 
-
+### 2
 Oddawali swe ukłony w pokorze,
 
 Tobie z serca ochotnego, o Boże!
 
-
+### 3
 Anioł Pański sam ogłosił te dziwy,
 
 których oni nie słyszeli, jak żywi.
 
-
+### 4
 Dziwili się napowietrznej muzyce
 
 i myśleli, co to będzie za Dziecię?
 
-
+### 5
 Oto Mu się wół i osioł kłaniają,
 
 trzej królowie podarunki oddają.
 
-
+### 6 
 I Anieli gromadami pilnują,
 
 Panna czysta wraz z Józefem piastują.
 
-
+### 7
 Poznali Go Mesjaszem być prawym,
 
 narodzonym dzisiaj Panem łaskawym.
 
-
+### 8
 My Go także Bogiem, Zbawcą już znamy
 
 i z całego serca wszyscy kochamy.
